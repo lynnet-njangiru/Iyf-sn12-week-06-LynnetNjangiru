@@ -1,1 +1,1 @@
-# Iyf-sn12-week06-LynnetNjangiru
+# Iyf-sn12-week-06-LynnetNjangiru
